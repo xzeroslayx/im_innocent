@@ -7,6 +7,7 @@ Adrian framed me when he was the flamer.
 
 **Summary:**  
 Same behaviour → different judgment.
-
+![[Noxi_Flaming_Clearly0.png]]
 That's called **a double standard**.
-![[image5-1.webp]]![[image4-1.webp]]![[image2-1.webp]]![[image3-1.webp]]![[image1.webp]]
+![[Pasted image 20260304204918.png]]
+![[exhibit B/image1.webp]]

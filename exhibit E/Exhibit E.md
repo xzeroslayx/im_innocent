@@ -17,4 +17,4 @@
 It lets someone **avoid responsibility while maintaining social control** + HE LIED.
 
 
-![[image.webp]]![[image4.webp]]![[image3.webp]]![[image2.webp]]
+![[exhibit E/image.webp]]![[exhibit E/image4.webp]]![[exhibit E/image3.webp]]![[exhibit E/image2.webp]]
