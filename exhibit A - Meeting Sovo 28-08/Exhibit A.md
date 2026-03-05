@@ -18,6 +18,8 @@ If you accuse someone of behavior and cannot name the behavior, the accusation i
 **Summary:**  
 “Two people didn’t like my vibe” → turned into “Noxi is a problem.”
 
+idk tryout vod
+https://www.youtube.com/watch?v=ZJhUrir-GIY&t=1881s
 ---
 ![[Tldr.png]]
 ![[exhibit A - Meeting Sovo 28-08/image.webp]]![[exhibit A - Meeting Sovo 28-08/image2.webp]]![[exhibit A - Meeting Sovo 28-08/image4.webp]]![[exhibit A - Meeting Sovo 28-08/image3.webp]]
